@@ -35,7 +35,12 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-The country-mans new care away To the tune of, Loue will find out the way.Guy, Richard, writer of ba
+
+1. The Country-mans new care away.
+To the tune of, Loue will find out the way.
+
+1. The second part. To the same tune.
+
 **Types of content**
 
   * There are 112 **verse** lines!
